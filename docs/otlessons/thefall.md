@@ -5,7 +5,7 @@
 [Genesis 3–4; Moses 4–5](https://abn.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/03?lang=eng) >> <a href="/docs/otlessons/thebeginning">In the Beginning</a>
 
 ### ![creation](/docs/assets/images/Eve.jpeg) Agency required
-* Ponder or review with your 3 person team all the things that point to the importance of agency.
+* Ponder or review individually or with your 3 person team all the things that point to the importance of agency.
 1. [Moses 4](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4?lang=eng):1 Satan, "I will redeem all mankind"
 2. [Moses 4](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4?lang=eng):2 Beloved Son, "Thy will be done, and the glory be thine"
 3. [Genesis 3](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/3?lang=eng):5 Serpent, "ye shall be as gods, knowing good from evil"
