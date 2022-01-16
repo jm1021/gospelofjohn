@@ -6,17 +6,17 @@
 
 ### ![creation](/docs/assets/images/Eve.jpeg) Agency required
 * Review and ponder, individually or with your 3 person team, all the things that point to the importance of agency.
-1. [Moses 4](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4.1?lang=eng) Satan, "I will redeem all mankind"
-2. [Moses 4](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4?lang=eng):2 Beloved Son, "Thy will be done, and the glory be thine"
-3. [Genesis 3](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/3?lang=eng):5 Serpent, "ye shall be as gods, knowing good from evil"
-4. [Genesis 3](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/3?lang=eng):6 Eve, "a tree to be desired to make one wise"
-5. [Moses 4](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4?lang=eng):12 Eve and Adam partake of the fruit
-6. [Moses 5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5?lang=eng):2  Eve and Adam bear sons and daughters
-7. [Moses 5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5?lang=eng):3 Sons and Daughter divide 2 and 2 in the land
-8. [Moses 5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5?lang=eng):5 Voice of the Lord, "worship the Lord their God" and offer Sacrifice
-9. [Moses 5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5?lang=eng):6 Adam, I know not save the Lord commanded me"
-10. [Moses 5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5?lang=eng):9 The Son declares, "... thou mayest be redeemed"
-11. [Moses 5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5?lang=eng):11 Eve was glad saying, "... the joy of our redemption"
+1. [Moses 4.1](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4.1?lang=eng) Satan, "I will redeem all mankind"
+2. [Moses 4.2](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4.2?lang=eng) Beloved Son, "Thy will be done, and the glory be thine"
+3. [Genesis 3.5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/3.5?lang=eng) Serpent, "ye shall be as gods, knowing good from evil"
+4. [Genesis 3.6](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/3.6?lang=eng) Eve, "a tree to be desired to make one wise"
+5. [Moses 4.12](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/4.12?lang=eng) Eve and Adam partake of the fruit
+6. [Moses 5.2](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5.2?lang=eng)  Eve and Adam bear sons and daughters
+7. [Moses 5.3](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5.3?lang=eng) Sons and Daughter divide 2 and 2 in the land
+8. [Moses 5.5](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5.5?lang=eng) Voice of the Lord, "worship the Lord their God" and offer Sacrifice
+9. [Moses 5.6](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5.6?lang=eng) Adam, I know not save the Lord commanded me"
+10. [Moses 5.9](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5.9?lang=eng) The Son declares, "... thou mayest be redeemed"
+11. [Moses 5.11](https://abn.churchofjesuschrist.org/study/scriptures/pgp/moses/5.11?lang=eng) Eve was glad saying, "... the joy of our redemption"
 
 ### <img src="/docs/assets/images/thinking.png" height="200" alt=""> Thoughts from our Day
 * What are some literal and figurative things you have learned as you consider the creation of Adam and Eve?
