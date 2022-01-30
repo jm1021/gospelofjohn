@@ -16,6 +16,7 @@
 * Like us --- [Abraham and Sarah demonstrate their faith: Hebrews 8-13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.8-13?lang=eng#p8)
 * We receive our Patriarchal Blessing and pay Tithes --- [Abraham and Melchizedek: Joseph Smith Translation, Genesis 14:36–40](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/14.36-40?lang=eng#p36)
 * Our temple blessing are Thrones, Kingdoms, Principalities, Dominions  -- [Abraham has received reward: Doctrine and Covenants 132:29](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132.29?lang=eng#p29)
+* [Exaltation and glory in all things](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132.19?lang=eng#p19)
 
 ### <img src="/docs/assets/images/thinking.png" height="200" alt=""> Thoughts from our Day
 * Revelations/Thoughts while reading
