@@ -4,7 +4,7 @@
 
 [Covenants: Genesis 12-17; Abraham 1–2](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/07?lang=eng) >> <a href="/docs/otlessons/abrahamtrials">Trials: Is anything too hard</a>
 
-### Warm-Up activity, abbreviated review of the periods of creation
+### Warm-Up activity, abbreviated review of Abraham and Covenants
 1. As individual or in groups of 2 or 3
 2. Read: [Abraham 1:2](https://abn.churchofjesuschrist.org/study/scriptures/ot/abr/1?lang=eng): 2
 3. Read: [Genesis 12:2-3](https://abn.churchofjesuschrist.org/study/scriptures/pgp/gen/12?lang=eng): 2-3
