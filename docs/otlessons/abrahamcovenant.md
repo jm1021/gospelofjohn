@@ -16,10 +16,11 @@
 * Revelations/Thoughts while reading
     * What have you pondered?  What revelations/thoughts have you received as you have read about the Abrahamic Covenant?
     * Have you considered the importance of counsels and covenants with God?
-    * 3'As (Atonement, Agency, and Abrahamic Covenant) are key topics to end 2021 and start 2022.  What relationships do you see in these topics.
+    * 3'As (Atonement, Agency, and Abrahamic Covenant) are key topics to end 2021 and start 2022.  What relationships do you see in these topics?
 * Lifespans and Genealogies
     * Abraham lived approximately 2000 years after Adam left the Garden of Eden.  Noah may have died when Abraham was 60 years old. Shem, Noah's son, may have outlived Abraham.
     * The Abrahamic faiths are Islam, Judaism, and Christianity.  Sarah is the Judaism and Christianity matriarch.  Hagar is the Islam matriarch.
     * Ishmael, who was 13 when Isaac was born, is considered the founder of Ishmaelites in Islam.  He is the son of Abraham and Hagar. Ishmael is considered the ancestor of Muhammad.
-    * Isaac is the only son of Abraham and Sarah who were 100 years and 90 years respectively.   Isaac was the father of Esau and Jacob (Israel).  Abraham, Isaac, and Jacob are referred to collectively as the patriarchs of Judaism.
+    * Isaac is the only son of Abraham and Sarah who were 100 years and 90 years respectively.   Isaac was the father of Esau and Jacob (Israel).  
+    * Abraham, Isaac, and Jacob are referred to collectively as the patriarchs of Judaism.
     * Sarah (Abraham), Rebekah (Isaac), Leah & Rachel (Jacob) are known as "the four mothers" in Judaism.
