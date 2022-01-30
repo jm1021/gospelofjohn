@@ -15,7 +15,9 @@
 ### <img src="/docs/assets/images/thinking.png" height="200" alt=""> Thoughts from our Day
 * What have you pondered?  What revelations have you received as you have read about the Abrahamic Covenant?
 * Have you considered the importance of counsels and covenants with God?
-* Historical Context
+* Lifespans and Genealogies
+    * Abraham lived approximately 2000 years after Adam left the Garden of Eden.  Noah may have died when Abraham was 60 years old. Shem, Noah's son, may have outlived Abraham.
     * The Abrahamic faiths are Islam, Judaism, and Christianity.  Sarah is the Judaism and Christianity matriarch.  Hagar is the Islam matriarch.
     * Ishmael, who was 13 when Isaac was born, is considered the founder of Ishmaelites in Islam.  He is the son of Abraham and Hagar. Ishmael is considered the ancestor of Muhammad.
     * Isaac is the only son of Abraham and Sarah who were 100 years and 90 years respectively.   Isaac was the father of Esau and Jacob (Israel).  Abraham, Isaac, and Jacob are referred to collectively as the patriarchs of Judaism.
+    * Sarah (Abraham), Rebekah (Idaac), Leah & Rachel (Jacob) are known as "the four mothers" in Judaism.
