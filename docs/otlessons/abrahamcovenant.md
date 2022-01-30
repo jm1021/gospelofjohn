@@ -10,4 +10,4 @@
 3. Read: [Genesis 12:2-3](https://abn.churchofjesuschrist.org/study/scriptures/pgp/gen/12?lang=eng): 2-3
 4. Read: [Gallations 3:27-29](https://abn.churchofjesuschrist.org/study/scriptures/pgp/gal/3?lang=eng): 27-29
 5. Read: [Abraham 2:9,11](https://abn.churchofjesuschrist.org/study/scriptures/ot/abr/2?lang=eng): 9, 11
-6. Ponder desire and its relationship to blessings. What is a covenant?  What is the Abrahamic Covenant?  What is the promise to each of us?
+6. Ponder desire and its relationship to blessings. What comes when we establish a relationship with God?  What is the Abrahamic Covenant?  What is the promise from the covenant to each of us?
