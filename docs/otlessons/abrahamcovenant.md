@@ -12,6 +12,11 @@
 5. Read: [Abraham 2:9,11](https://abn.churchofjesuschrist.org/study/scriptures/pgp/abr/2.9-11?lang=eng)
 6. Ponder desire and its relationship to blessings. What comes when we establish a relationship with God?  What is the Abrahamic Covenant?  What is the promise from the covenant to each of us?
 
+###  Abraham's progress relates to each of us
+* Like us --- [Abraham and Sarah demonstrate their faith: Hebrews 8-13](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11.8-13?lang=eng#p8)
+* We receive our Patriarchal Blessing and pay Tithes --- [Abraham and Melchizedek: Joseph Smith Translation, Genesis 14:36–40](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/14.36-40?lang=eng#p36)
+* Our temple blessing are Thrones, Kingdoms, Principalities, Dominions  -- [Abraham has received reward: Doctrine and Covenants 132:29](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/132.29?lang=eng#p29)
+
 ### <img src="/docs/assets/images/thinking.png" height="200" alt=""> Thoughts from our Day
 * Revelations/Thoughts while reading
     * What have you pondered?  What revelations/thoughts have you received as you have read about the Abrahamic Covenant?
