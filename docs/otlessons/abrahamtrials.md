@@ -1,4 +1,4 @@
-## To Be a Greater Follower of Righteousness
+## Is Any Thing Too Hard for the Lord?
 
 {% include home.html %}
 
