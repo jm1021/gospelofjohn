@@ -2,6 +2,7 @@
 
 {% include home.html %}
 
+[Reference](https://www.churchofjesuschrist.org/study/general-conference/2021/10/46cook?lang=eng)
 [Youtube Video](https://www.youtube.com/watch?v=ADe6G5u0ljw)
 
 1. Think of a current challenge, think as Joseph Smith thought **O God were art thou**.  Read as individual or pair ...
