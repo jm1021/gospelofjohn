@@ -14,7 +14,7 @@
     * Be prepared to answer, what do I expect in adversity?
     * [Doctrine and Covenants 121:45-46](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/121.45-46?lang=eng#p44)
 1. As we rely on Jesus Christ ... do we believe [all that is unfair in life can be made right through Jesus Christ](https://www.churchofjesuschrist.org/study/general-conference/2021/10/46cook?lang=eng&id=p20#p20)
-    * Quentin Cook comments on the [lack of civility](https://www.churchofjesuschrist.org/study/general-conference/2021/10/46cook?lang=eng#:~:text=In%20my%20lifetime%2C%20I%20have%20never%20seen%20a%20greater%20lack%20of%20civility.%20We%20are%20bombarded%20with%20angry%2C%20contentious%20language%20and%20provocative%2C%20devastating%20actions%20that%20destroy%20peace%20and%20tranquility.)
+    * Quentin Cook comments on the [lack of civility](https://www.churchofjesuschrist.org/study/general-conference/2021/10/46cook?lang=eng&id=p7#p7)
     * What is an example of how you make right the **lack of civility** through **the atonement of Jesus Christ**?
     * What power do you use to **withstand the moment**?
 1. Excerpts from Q. Cook 5 highlights
