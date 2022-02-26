@@ -6,7 +6,7 @@
 [Youtube Video](https://www.youtube.com/watch?v=ADe6G5u0ljw)
 
 
-<img src="/docs/assets/images/libertyjail.png" height="200" alt="">
+<img src="/docs/assets/images/libertyjail.png" height="200" alt=""><img src="/docs/assets/images/qcook.png" height="200" alt="">
 
 1. Think of a current challenge, think as Joseph Smith thought **O God were art thou**.  Read as individual or pair ...
     * [Doctrine and Covenants 121:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/121.1?lang=eng#p0)
