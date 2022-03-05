@@ -12,5 +12,7 @@ As individual or in groups of 2 or 3 review this story of finding Rebekah.  Thin
 4. Rebekah goes with Servant and is blessed: [Genesis 24:58-60](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.58-60?lang=eng#p57)
 5. Isaac and Rebekah meet: [Genesis 24:63-67](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.63-67?lang=eng#p62)
 
-### Potage
+### Pottage
 We can choose between immediate gratification and things of greater value. [Genesis 25:29-34](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.29-34?lang=eng#p28)
+
+
