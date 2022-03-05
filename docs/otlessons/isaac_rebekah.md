@@ -6,8 +6,8 @@
 
 ### ![abraham](/docs/assets/images/rebekah_portrait.jpeg) Warm-Up activity, abbreviated review of Servant finding Rebekah, wife for Isaac.
 As individual or in groups of 2 or 3 review this story of finding Rebekah.  Think and enumberate the qualities of Rebekah.  Think of characterisitics that you believe demonstrates qualities that can help a person create happiness?   Qualities in marriage—and other aspects of life?  Add to that qualities you see in the servant.
-1. Servant call to go to land of Abraham: [Genesis 24:2](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.2?lang=eng)
-2. Servant takes camels and goods to Mesopotamia, Nahor: [Genesis 24:10](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.10?lang=eng)
-3. Rebekah an answer to Servant prayers: [Genesis 24:42-48](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.42-48?lang=eng)
-4. Rebekah goes with Servant and is blessed: [Genesis 24:58-60](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.58-60?lang=eng)
-5. Isaac and Rebekah meet: [Genesis 24:63-67](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.63-67?lang=eng)
+1. Servant call to go to land of Abraham: [Genesis 24:2](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.2?lang=eng#p1)
+2. Servant takes camels and goods to Mesopotamia, Nahor: [Genesis 24:10](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.10?lang=eng#p9)
+3. Rebekah an answer to Servant prayers: [Genesis 24:42-48](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.42-48?lang=eng#p41)
+4. Rebekah goes with Servant and is blessed: [Genesis 24:58-60](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.58-60?lang=eng#p57)
+5. Isaac and Rebekah meet: [Genesis 24:63-67](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.63-67?lang=eng#p62)
