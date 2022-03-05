@@ -1,4 +1,4 @@
-## Jacob, Leah, and Rachel: Israel, Surely the Lord Is in This Place
+## Jacob, Leah, and Rachel: Surely the Lord Is in This Place
 
 {% include home.html %}
 
