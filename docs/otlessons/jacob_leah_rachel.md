@@ -2,7 +2,7 @@
 
 {% include home.html %}
 
-[The Covenant Renewed: Genesis 28:33](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/10?lang=eng) >> <a href="/docs/otlessons/abrahamcovenant">Abraham: The Covenant</a>, <a href="/docs/otlessons/isaac_rachel">Isaac and Rachel</a>
+[The Covenant Renewed: Genesis 28:33](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/10?lang=eng) >> <a href="/docs/otlessons/abrahamcovenant">Abraham: The Covenant</a>, <a href="/docs/otlessons/isaac_rebekah">Isaac and Rebekah</a>
 
 ### ![abraham](/docs/assets/images/jacobsladder.jpeg) Warm-Up activity, abbreviated review of Servant finding Rebekah, wife for Isaac.
 As individual or in groups of 2 or 3 review this story of finding Rebekah.  Think of the qualities of Rebekah.  Think of characterisitics that you believe demonstrates qualities that can help a person create happiness in marriage—and other aspects of life.
