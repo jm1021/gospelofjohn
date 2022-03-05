@@ -7,7 +7,7 @@
 
 ### ![abraham](/docs/assets/images/abraham_sarah.jpeg) Warm-Up activity, abbreviated review of Abraham and Covenants
 1. As individual or in groups of 2 or 3
-2. Read: [Abraham 1:2](https://abn.churchofjesuschrist.org/study/scriptures/pgp/abr/1.2?lang=eng#p0)
+2. Read: [Abraham 1:2](https://abn.churchofjesuschrist.org/study/scriptures/pgp/abr/1.2?lang=eng#p1)
 3. Read: [Genesis 12:2-3](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/12.2-3?lang=eng#p1)
 4. Read: [Gallations 3:27-29](https://abn.churchofjesuschrist.org/study/scriptures/nt/gal/3.27-29?lang=eng#p26)
 5. Read: [Abraham 2:9,11](https://abn.churchofjesuschrist.org/study/scriptures/pgp/abr/2.9-11?lang=eng#p8)
