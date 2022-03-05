@@ -17,5 +17,5 @@ We can choose between immediate gratification and things of greater value. Jacob
 
 ### Abrahamic Covenant renewed through Isaac
 1. Rebekah's revelation [Genesis 25:23](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.23?lang=eng#p22)
-2. Rebekah and Jacob deceive Issac [Genesis 26:1-5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/26.1-5?lang=eng#p1)
+2. Lord tells Issac he will bless nations per Abrahamic Coventant [Genesis 26:1-5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/26.1-5?lang=eng#p1)
 
