@@ -10,5 +10,5 @@ As individual or in groups of 2 or 3 review this story of Jacob making covenants
 2. Ladder which Angels asscend and descend: [Genesis 28:12](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.12?lang=eng#p11)
 3. Lord stood above declaring lineage: [Genesis 28:13](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.13?lang=eng#p12)
 4. Lord repeats Abrahmic promise: [Genesis 28:14](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.14?lang=eng#p13)
-5. Jacob relization or testimony: [Genesis 28:17](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.17?lang=eng#p16)
+5. Jacob relization or testimony: [Genesis 28:16-17](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.16-17?lang=eng#p15)
 6. Jacob make covenants: [Genesis 28:18-22](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.18-22?lang=eng#p17)
