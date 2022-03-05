@@ -1,4 +1,4 @@
-## Abraham and Sarah
+## Abraham and Sarah: The Covenant
 
 {% include home.html %}
 
