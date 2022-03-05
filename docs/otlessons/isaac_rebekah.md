@@ -18,4 +18,18 @@ We can choose between immediate gratification and things of greater value. Jacob
 ### Abrahamic Covenant renewed through Isaac
 1. Rebekah's revelation [Genesis 25:23](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.23?lang=eng#p22)
 2. Lord tells Issac he will bless nations per Abrahamic Coventant [Genesis 26:1-5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/26.1-5?lang=eng#p1)
+3. Rebekah and Jacob deceive Isaac [Genesis 26:6-24](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/27.6-24?lang=eng#p5)
+4. Blessing of Jacob as he impersonates Esau
+```text
+27 And he came anear, and kissed him: and he smelled the smell of his raiment, and bblessed him, and said, See, the smell of my son is as the smell of a field which the Lord hath blessed:
 
+28 Therefore God give thee of the adew of heaven, and the fatness of the earth, and plenty of corn and wine:
+
+29 Let people aserve thee, and nations bow down to thee: be lord over thy brethren, and let thy mother’s sons bbow down to thee: cursed be every one that curseth thee, and cblessed be he that dblesseth thee.
+```
+5. Blessing of Esau
+```text
+39 And Isaac his father answered and said unto him, Behold, thy dwelling shall be the fatness of the earth, and of the dew of heaven from above;
+
+40 And by thy sword shalt thou live, and shalt serve thy abrother; and it shall come to pass when thou shalt have the dominion, that thou shalt bbreak his cyoke from off thy neck.
+```
