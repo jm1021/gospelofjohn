@@ -13,6 +13,9 @@ As individual or in groups of 2 or 3 review this story of finding Rebekah.  Thin
 5. Isaac and Rebekah meet: [Genesis 24:63-67](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.63-67?lang=eng#p62)
 
 ### Pottage
-We can choose between immediate gratification and things of greater value. [Genesis 25:29-34](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.29-34?lang=eng#p28)
+We can choose between immediate gratification and things of greater value. Jacob acquires birth right from Esau. [Genesis 25:29-34](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.29-34?lang=eng#p28)
 
+### Abrahamic Covenant renewed through Isaac
+1. Rebekah's revelation [Genesis 25:23](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.23?lang=eng#p22)
+2. Rebekah and Jacob deceive Issac [Genesis 26:1-5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/26.1-5?lang=eng#p1)
 
