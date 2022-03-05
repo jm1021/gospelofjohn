@@ -1,4 +1,4 @@
-## To Be a Greater Follower of Righteousness
+## Abraham and Sarah
 
 {% include home.html %}
 
