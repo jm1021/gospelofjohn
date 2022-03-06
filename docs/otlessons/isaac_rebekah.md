@@ -21,6 +21,7 @@ What do we think of the deceit?  What is difference between birth right and bles
 2. Lord tells Issac he will bless nations per Abrahamic Coventant [Genesis 26:1-5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/26.1-5?lang=eng#p1)
 3. Rebekah and Jacob deceive Isaac [Genesis 26:6-24](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/27.6-24?lang=eng#p5)
 4. Blessing of Jacob as he impersonates Esau
+
 ```text
 27 And he came near, and kissed him: and he smelled the smell of his raiment, and blessed him, and said, See, the smell of my son is as the smell of a field which the Lord hath blessed:
 
@@ -28,10 +29,13 @@ What do we think of the deceit?  What is difference between birth right and bles
 
 29 Let people serve thee, and nations bow down to thee: be lord over thy brethren, and let thy mother’s sons bow down to thee: cursed be every one that curseth thee, and blessed be he that blesseth thee.
 ```
+
 5. Blessing of Esau as he returns after his blessing has been given
+
 ```text
 39 And Isaac his father answered and said unto him, Behold, thy dwelling shall be the fatness of the earth, and of the dew of heaven from above;
 
 40 And by thy sword shalt thou live, and shalt serve thy brother; and it shall come to pass when thou shalt have the dominion, that thou shalt break his yoke from off thy neck.
 ```
+
 6. Rebekah tells Jacob to flee to her brother Laban, as Esau says he will slay Jacob.
