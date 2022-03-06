@@ -13,8 +13,8 @@ As individual or in groups of 2 or 3 review this story of Jacob making covenants
 5. Jacob's testimony: [Genesis 28:16-17](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.16-17?lang=eng#p15)
 6. Jacob makes covenants: [Genesis 28:18-22](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/28.18-22?lang=eng#p17)
 
-### Children Race
-Full of all kinds of interesting activities and trials from our times.  Here it seems there is a competition between Leah (Unloved) and Rachel (Loved).  Jacob seeemingly involved in Polygamy -- A Favorite Wife, Slavery -- Maid Servants as wives, and Jealousy.   Rachel is suffering with infertiltiy, not unlike Sarah.  Also, to increase fertility the bring "mandrakes" (fertility drug).
+### Marriage and Children Race
+Full of all kinds of interesting activities and trials from our times.  Jacob works seven years for Rachel, but on wedding night he receives Leah.  Then he bargains for another 7 years to have Rachel.  Then, it seems there is a competition between Leah (Unloved) and Rachel (Loved).  Jacob is involved in Polygamy -- A Favorite Wife, Slavery -- Maid Servants as wives, and Jealousy.   Rachel is suffering with infertiltiy, not unlike Sarah story.  Also, to increase fertility later in child bearing Leah turns to "mandrakes" (fertility drug).
 * Leah whose "womb is opened by the Lord" because the Lord sees she is hated.  [Genesis 29:31](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/29.31?lang=eng#p28)
     * Reuben #1, Simeon #2, Levi #3, Judah #4, after mandrakes Issachar #9, Zebulun #10
 * Bilhah, Rachel's servant is used to bring children to Rachel's side of the housee.
@@ -25,4 +25,4 @@ Full of all kinds of interesting activities and trials from our times.  Here it 
     * Joseph #11 (who will become Joseph of Egypt)
 
 ### The Savior can help us overcome discord in our families.
-After Joseph is born, Jacob asked to be freed from Laban.  Joseph goes through a phase of negotiation with Laban and does a lot of genetic engineering with the flocks to establish order in each house.  Thought, it seems that Jacob does a lot to improve his personal herds [Genesis 30:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.42?lang=eng#p41).
+After Joseph is born, Jacob asked to be freed from Laban.  Joseph goes through a phase of negotiation with Laban and does a lot of genetic engineering with the flocks to establish order in each house.  Thought, it seems that Jacob does a lot to improve his personal herds [Genesis 30:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.42?lang=eng#p41).  Jacob speaks to Leah and Rachel about injustice in wages from Laban [Genesis 31:7](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.7?lang=eng#p6)
