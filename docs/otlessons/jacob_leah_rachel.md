@@ -47,7 +47,7 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 ```
 
 ### The Savior can help us overcome discord in our families - Part 2 Esau
-[Genesis 32](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/32.1?lang=eng#p1), Jacob needs to turn focus to the land of his father Isaac.   Of course, Esau is there and there and there is the concern how he will be received or even killed.  
+[Genesis 32](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/32.1?lang=eng#p1) Jacob needs to turn focus to the land of his father Isaac.   Of course, Esau is there and there and there is the concern how he will be received or even killed.  
 * Jacob is blessed by Angels 
 
 ```text
@@ -65,7 +65,7 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 28 And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.
 ```
 
-[Genesis 33](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/33.1?lang=eng#p1). Esau and Jacob reunite
+[Genesis 33](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/33.1?lang=eng#p1) Esau and Jacob reunite
 
 * Jacob/Israel has prepared.  But, still is cautious as how he orders his family.
 
