@@ -32,4 +32,17 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 * Leah and Rachel speak of problems with Laban [Genesis 31:14-16](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.14-16?lang=eng#p13)
 * Jacob put his family on camels and leaves without telling Laban [Genesis 31:17-18](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.17-18?lang=eng#p16)
 * Laban, after 3 days, pusues and overtakes Jacob.  Before he does he has dream, a caution related to blessing give Jacob. [Genesis 31:29](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.29?lang=eng#p28)
+* Jacob speaks his piecce about the God of his Fathers. [Genesis 31:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.42?lang=eng#p41)
+* Laban says all is his: wives, children, cattle, but says he will make a covenant with Jacob. [Genesis 31:44](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.44?lang=eng#p43)
+* Laban establishes boarders at their erricted pillar. [Genesis 31:52](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.52?lang=eng#p41)
+* Laban establishes boarders at their erricted pillar. [Genesis 31:52](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.52?lang=eng#p41)
+
+```text
+53 The God of Abraham, and the God of Nahor, the God of their father, judge betwixt us. And Jacob sware by the fear of his father Isaac.
+
+54 Then Jacob offered sacrifice upon the mount, and called his brethren to eat bread: and they did eat abread, and tarried all night in the mount.
+
+55 And early in the morning Laban rose up, and kissed his sons and his daughters, and blessed them: and Laban departed, and returned unto his place.
+```
+
 
