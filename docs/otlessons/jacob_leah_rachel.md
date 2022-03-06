@@ -24,8 +24,8 @@ Full of all kinds of interesting activities and trials from our times.  Jacob wo
 * Rachel finally conceives as "God remembered Rache [Genesis 30:22](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.22?lang=eng#p21)
     * Joseph #11 (who will become Joseph of Egypt)
 
-### The Savior can help us overcome discord in our families.
-After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a lot of unjustice in having Laban as his boss.  He starts to prepare to leave.
+### The Savior can help us overcome discord in our families - Part 1 Laban.
+After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a lot of unjustice in having Laban as his boss.  He served laban 7 years for Leah, 7 years for Rachel, and 6 more years toward cattle.  Jacob starts discussions and prepares to leave.  There are a lot of hard feelings in the family and Rachel even steals property from her father Laban.  
 * Jacob goes through a phase of negotiation with Laban and does a lot of genetic engineering with the flocks to establish order in each house.  
 * Jacob does a lot to improve his personal herds [Genesis 30:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.42?lang=eng#p41).  
 * Jacob speaks to Leah and Rachel about injustice in wages from Laban [Genesis 31:7](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.7?lang=eng#p6)
@@ -36,13 +36,25 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 * Laban says all is his: wives, children, cattle, but says he will make a covenant with Jacob. [Genesis 31:44](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.44?lang=eng#p43)
 * Laban establishes boarders at their erricted pillar. [Genesis 31:52](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.52?lang=eng#p41)
 * Laban establishes boarders at their erricted pillar. [Genesis 31:52](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.52?lang=eng#p41)
-
+* There appears to be a ceremony, negotiation, and then there is a amiacable seperation.
 ```text
 53 The God of Abraham, and the God of Nahor, the God of their father, judge betwixt us. And Jacob sware by the fear of his father Isaac.
 
 54 Then Jacob offered sacrifice upon the mount, and called his brethren to eat bread: and they did eat abread, and tarried all night in the mount.
 
 55 And early in the morning Laban rose up, and kissed his sons and his daughters, and blessed them: and Laban departed, and returned unto his place.
+```
+
+### The Savior can help us overcome discord in our families - Part 2 Esau.
+Next, Jacob needs to turn focus to the land of his father Isaac.   Of course, Esau is there and there and there is the concern how he will be received.  
+* Jacob is blessed by Angels [Genesis 32:1](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/32.1?lang=eng#p1)
+* Jacob send messengers and this is what is heard back
+```text
+And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.
+```
+* Jacob sends servents ahead with substantial gifts for Esau.  Jacob turns to the God of his Fathers.   He recounts the Abrahmic covenant.  He spends an evening **wrestling with an angel** and in the morning requests a  blessing, he receives the name Israel.
+```text
+28 And he said, Thy aname shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.
 ```
 
 
