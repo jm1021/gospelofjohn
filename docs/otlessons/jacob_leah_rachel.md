@@ -21,7 +21,8 @@ Full of all kinds of interesting activities and trials from our times.  Here it 
     * Dan #5, Naphtali #6
 * Zipha, Leah's servant is somewhat of a counter to Rachel's servant as Leah is stated having left barring
     * Gad #7, Asher #8
-* Rachel finally conceives as "God remembered Rache [Genesis 30:22](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.22?lang=eng#p28)
+* Rachel finally conceives as "God remembered Rache [Genesis 30:22](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.22?lang=eng#p21)
     * Joseph #11 (who will become Joseph of Egypt)
 
-### After Joseph is born, Jacob asked to be freed from Laban
+### The Savior can help us overcome discord in our families.
+After Joseph is born, Jacob asked to be freed from Laban.  Joseph goes through a phase of negotiation with Laban and does a lot of genetic engineering with the flocks to establish order in each house.  Thought, it seems that Jacob does a lot to improve his personal herds [Genesis 30:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.42?lang=eng#p41).
