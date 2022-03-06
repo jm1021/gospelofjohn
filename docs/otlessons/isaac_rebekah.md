@@ -33,7 +33,13 @@ Genisis 25
 
 ### Abrahamic Covenant renewed through Isaac
 What do we think of the deceit?  What is difference between birth right and blessing?
-1. Rebekah's revelation [Genesis 25:23](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.23?lang=eng#p22)
+1. Rebekah's revelation
+
+```text
+Genesis 25
+23 And the Lord said unto her, Two nations are in thy womb, and two manner of people shall be separated from thy bowels; and the one people shall be stronger than the other people; and the elder shall serve the younger.
+```
+
 2. Lord tells Issac he will bless nations per Abrahamic Coventant [Genesis 26:1-5](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/26.1-5?lang=eng#p1)
 3. Rebekah and Jacob deceive Isaac [Genesis 26:6-24](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/27.6-24?lang=eng#p5)
 4. Blessing of Jacob as he impersonates Esau
