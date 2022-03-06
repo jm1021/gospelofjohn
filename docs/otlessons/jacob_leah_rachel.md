@@ -65,4 +65,22 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 28 And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.
 ```
 
+[Genesis 33](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/33.1?lang=eng#p1). Esau and Jacob reunite
 
+* Jacob/Israel has prepared.  But, still is cautious as how he orders his family.
+
+```text
+2 And he put the handmaids and their children foremost, and Leah and her children after, and Rachel and Joseph hindermost.
+```
+
+* Esau greets Jacob amazingly.
+
+```text
+4 And Esau ran to meet him, and embraced him, and fell on his neck, and kissed him: and they wept.
+```
+
+* Esau seem more concerned about family than about Jacob
+
+```text
+8 ... What meanest thou by all this drove ...
+```
