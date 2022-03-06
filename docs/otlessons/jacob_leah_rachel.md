@@ -55,6 +55,7 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 ```
 
 * Jacob send messengers and this is what is heard back
+
 ```text
 6 And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.
 ```
