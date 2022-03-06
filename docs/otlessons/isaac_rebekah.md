@@ -20,9 +20,9 @@ Genisis 25
 
 29 ¶ And Jacob sod pottage: and Esau came from the field, and he was faint:
 
-30 And Esau said to Jacob, Feed me, I pray thee, with that same red pottage; for I am faint: therefore was his name called aEdom.
+30 And Esau said to Jacob, Feed me, I pray thee, with that same red pottage; for I am faint: therefore was his name called Edom.
 
-31 And Jacob said, Sell me this day thy abirthright.
+31 And Jacob said, Sell me this day thy birthright.
 
 32 And Esau said, Behold, I am at the point to die: and what profit shall this birthright do to me?
 
