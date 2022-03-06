@@ -45,16 +45,19 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 55 And early in the morning Laban rose up, and kissed his sons and his daughters, and blessed them: and Laban departed, and returned unto his place.
 ```
 
-### The Savior can help us overcome discord in our families - Part 2 Esau.
-Next, Jacob needs to turn focus to the land of his father Isaac.   Of course, Esau is there and there and there is the concern how he will be received.  
-* Jacob is blessed by Angels [Genesis 32:1](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/32.1?lang=eng#p1)
+### The Savior can help us overcome discord in our families - Part 2 Esau
+[Genesis 32](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/32.1?lang=eng#p1), Jacob needs to turn focus to the land of his father Isaac.   Of course, Esau is there and there and there is the concern how he will be received or even killed.  
+* Jacob is blessed by Angels 
+```text
+1 And Jacob went on his way, and the angels of God met him.
+```
 * Jacob send messengers and this is what is heard back
 ```text
-And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.
+6 And the messengers returned to Jacob, saying, We came to thy brother Esau, and also he cometh to meet thee, and four hundred men with him.
 ```
 * Jacob sends servents ahead with substantial gifts for Esau.  Jacob turns to the God of his Fathers.   He recounts the Abrahmic covenant.  He spends an evening **wrestling with an angel** and in the morning requests a  blessing, he receives the name Israel.
 ```text
-28 And he said, Thy aname shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.
+28 And he said, Thy name shall be called no more Jacob, but Israel: for as a prince hast thou power with God and with men, and hast prevailed.
 ```
 
 
