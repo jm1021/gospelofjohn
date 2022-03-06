@@ -25,4 +25,11 @@ Full of all kinds of interesting activities and trials from our times.  Jacob wo
     * Joseph #11 (who will become Joseph of Egypt)
 
 ### The Savior can help us overcome discord in our families.
-After Joseph is born, Jacob asked to be freed from Laban.  Joseph goes through a phase of negotiation with Laban and does a lot of genetic engineering with the flocks to establish order in each house.  Thought, it seems that Jacob does a lot to improve his personal herds [Genesis 30:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.42?lang=eng#p41).  Jacob speaks to Leah and Rachel about injustice in wages from Laban [Genesis 31:7](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.7?lang=eng#p6)
+After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a lot of unjustice in having Laban as his boss.  He starts to prepare to leave.
+* Jacob goes through a phase of negotiation with Laban and does a lot of genetic engineering with the flocks to establish order in each house.  
+* Jacob does a lot to improve his personal herds [Genesis 30:42](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/30.42?lang=eng#p41).  
+* Jacob speaks to Leah and Rachel about injustice in wages from Laban [Genesis 31:7](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.7?lang=eng#p6)
+* Leah and Rachel speak of problems with Laban [Genesis 31:14-16](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.14-16?lang=eng#p13)
+* Jacob put his family on camels and leaves without telling Laban [Genesis 31:17-18](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.17-18?lang=eng#p16)
+* Laban, after 3 days, pusues and overtakes Jacob.  Before he does he has dream, a caution related to blessing give Jacob. [Genesis 31:24](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.24?lang=eng#p23)
+
