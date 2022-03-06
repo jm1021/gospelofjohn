@@ -31,5 +31,5 @@ After Joseph is born, Jacob asked to be freed from Laban.  There seems to be a l
 * Jacob speaks to Leah and Rachel about injustice in wages from Laban [Genesis 31:7](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.7?lang=eng#p6)
 * Leah and Rachel speak of problems with Laban [Genesis 31:14-16](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.14-16?lang=eng#p13)
 * Jacob put his family on camels and leaves without telling Laban [Genesis 31:17-18](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.17-18?lang=eng#p16)
-* Laban, after 3 days, pusues and overtakes Jacob.  Before he does he has dream, a caution related to blessing give Jacob. [Genesis 31:24](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.24?lang=eng#p23)
+* Laban, after 3 days, pusues and overtakes Jacob.  Before he does he has dream, a caution related to blessing give Jacob. [Genesis 31:29](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/31.29?lang=eng#p28)
 
