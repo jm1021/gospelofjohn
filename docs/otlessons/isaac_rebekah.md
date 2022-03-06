@@ -13,7 +13,23 @@ As individual or in groups of 2 or 3 review this story of finding Rebekah.  Thin
 5. Isaac and Rebekah meet: [Genesis 24:63-67](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/24.63-67?lang=eng#p62)
 
 ### Pottage
-We can choose between immediate gratification and things of greater value. Jacob acquires birth right from Esau. [Genesis 25:29-34](https://abn.churchofjesuschrist.org/study/scriptures/ot/gen/25.29-34?lang=eng#p28)
+We can choose between immediate gratification and things of greater value. Jacob acquires birth right from Esau.
+
+```text
+Genisis 25
+
+29 ¶ And Jacob sod pottage: and Esau came from the field, and he was faint:
+
+30 And Esau said to Jacob, Feed me, I pray thee, with that same red pottage; for I am faint: therefore was his name called aEdom.
+
+31 And Jacob said, Sell me this day thy abirthright.
+
+32 And Esau said, Behold, I am at the point to die: and what profit shall this birthright do to me?
+
+33 And Jacob said, Swear to me this day; and he sware unto him: and he sold his birthright unto Jacob.
+
+34 Then Jacob gave Esau bread and pottage of lentiles; and he did eat and drink, and rose up, and went his way: thus Esau despised his birthright.
+```
 
 ### Abrahamic Covenant renewed through Isaac
 What do we think of the deceit?  What is difference between birth right and blessing?
