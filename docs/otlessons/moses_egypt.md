@@ -29,8 +29,8 @@ We just listened to our prophet.  Many of us have opportunity to be like the chi
 
 1. Missionaries proclaim, [There is Peace](https://youtu.be/x0kki9l02KM)
 2. Prophet declares, [The Power of Spiritual Momentum](https://www.churchofjesuschrist.org/study/general-conference/2022/04/47nelson?lang=eng)
-    * Get on the covenant path and stay there
-    * Discover the joy of daily repentance
-    * Learn about God and how He works
-    * Seek and expect miracles
-    * End conflict in your personal life
+    * Get on the covenant path and stay there, "Ordinances and covenants give us access to godly power."
+    * Discover the joy of daily repentance, "Walking the covenant path, coupled with daily repentance, fuels positive spiritual momentum", "... the covenant path does not mean that life will be easy"
+    * Learn about God and how He works, "... let God prevail in your life", "Moses provided an example of how to discern between God and Satan."
+    * Seek and expect miracles, "He parted the Red Sea for Moses"
+    * End conflict in your personal life, today is the day to "seek and end to personal conflict that has weighed you down"
