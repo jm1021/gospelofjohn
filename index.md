@@ -1,7 +1,5 @@
 ### Lessons
 
-{% include navigation.html %}
-
 ### Come Follow Me
 * [2022 Old Testament](https://abn.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022?lang=eng)
 * [2021 Doctrine and Covenants](https://abn.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-doctrine-and-covenants-2021?lang=eng)
