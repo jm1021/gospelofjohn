@@ -1,7 +1,5 @@
 ## Jacob, Leah, and Rachel: Surely the Lord Is in This Place
 
-{% include home.html %}
-
 [The Covenant Renewed: Genesis 28:33](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/10?lang=eng) >> <a href="/docs/otlessons/abrahamcovenant">Abraham: The Covenant</a>, <a href="/docs/otlessons/isaac_rebekah">Isaac and Rebekah</a>
 
 ### ![abraham](/docs/assets/images/jacobsladder.jpeg) Warm-Up activity, Jacobs ladder.
