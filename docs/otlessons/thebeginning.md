@@ -1,7 +1,5 @@
 ## In the Beginning God Created the Heaven and the Earth
 
-{% include home.html %}
-
 [Genesis 1–2; Moses 2–3; Abraham 4–5](https://abn.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/02?lang=eng) >> <a href="/docs/otlessons/thefall">The Fall</a>
 
 ### ![creation](/docs/assets/images/creation.jpeg) Warm-Up activity, abbreviated review of the periods of creation
