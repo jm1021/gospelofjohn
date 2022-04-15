@@ -21,6 +21,7 @@ Is it possible that Cars and Gasoline could cause a similar series of plauges an
 2. [Ice melting](https://www.worldwildlife.org/pages/six-ways-loss-of-arctic-ice-impacts-everyone#:~:text=Polar%20ice%20caps%20are%20melting,declined%20by%20a%20stunning%2095%25.)
 3. [Tides rising, water warming](https://climate.nasa.gov/climate_resources/199/rising-tides-understanding-sea-level-rise/)
 4. [Loss of coral and breeding](https://www.iucn.org/resources/issues-briefs/ocean-warming#:~:text=The%20ocean%20absorbs%20most%20of,for%20marine%20fishes%20and%20mammals.)
-5. ... 
+5. [Droughts](https://climate.nasa.gov/news/3117/drought-makes-its-home-on-the-range/#:~:text=Drought%E2%80%94a%20year%20with%20a,the%20American%20west%20on%20record.)
+6. ...
 
 [There is Peace](https://youtu.be/x0kki9l02KM)
