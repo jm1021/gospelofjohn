@@ -1,7 +1,5 @@
 ## Isaac and Rebekah: The Covenant Renewed
 
-{% include home.html %}
-
 [The Covenant Renewed: Genesis 24:27](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022/09?lang=eng) >> <a href="/docs/otlessons/abrahamcovenant">Abraham: The Covenant</a>, <a href="/docs/otlessons/jacob_leah_rachel">Jacob, Leah, Rachel</a>
 
 ### ![abraham](/docs/assets/images/rebekah_portrait.jpeg) 
