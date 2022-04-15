@@ -9,3 +9,4 @@
         1. To restore all that was lost in physical and spiritual death
         2. To provide the opportunity to repent and overcome spiritual death
         3. To allow us the potential to become a god or goddess.
+    * “The Savior observed every spiritual law with undeviating exactness apparently because of his compliance with each one, he received power upon power until he acquired the attributes of God, even in premortal ties. Such progress was a natural consequence of his exacting compliance. His godhood thus seemed to result not from a creation of these laws, but rather from compliance with them” (page 301).
