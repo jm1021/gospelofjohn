@@ -2,9 +2,9 @@
 
 #### From Tad Callister in "The Infinite Atonement"
 
-```text
+<p>
 Satan has been successful in diverting much of the Christian world’s attention from the one doctrine that can save us, the Atonement of Jesus Christ, to the ancillary doctrines that have meaning only because they draw their sustenance from this redeeming event. Like a skilled magician, Satan’s every move is to divert our attention and dilute our focus from the primary object at hand, namely Christ’s atoning sacrifice, in hopes we will turn exclusively to doctrines of secondary and far lesser import” (page 15).
-```
+</p>
 
 #### Continuing... So what is the Atonement, and why was the Fall of Adam and Eve so significant, even vital? Elder Callister reminds us that the three purposes of the Atonement are 
 1. To restore all that was lost in physical and spiritual death
