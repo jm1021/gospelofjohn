@@ -32,5 +32,5 @@ We just listened to our prophet.  Many of us have opportunity to be like the chi
     * Get on the covenant path and stay there, "Ordinances and covenants give us access to godly power."
     * Discover the joy of daily repentance, "Walking the covenant path, coupled with daily repentance, fuels positive spiritual momentum", "... the covenant path does not mean that life will be easy"
     * Learn about God and how He works, "... let God prevail in your life", "Moses provided an example of how to discern between God and Satan."
-    * Seek and expect miracles, "He parted the Red Sea for Moses"
+    * Seek and expect miracles, "He parted the Red Sea for Moses", "...realizing the Lord is helping you to move a mountain in your life."
     * End conflict in your personal life, today is the day to "seek and end to personal conflict that has weighed you down"
