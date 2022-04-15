@@ -1,4 +1,33 @@
 ### Lessons
+<table>
+   <tr>
+        <th>Date</th>
+        <th>Topics</th>
+        <th>Link(s)</th>
+    </tr>
+   <tr>
+        <td>April 17, 2022</td>
+        <td>Jesus Christ Lives and a little Moses</td>
+        <td><a href="/docs/otlessons/moses_egypt">Moses and Egypt</a>, <a href="/docs/otlessons/jesus_lives">Jesus Lives</a></td>
+   </tr>
+   <tr>
+        <td>Mar 6, 2022</td>
+        <td>The Covenant</td>
+        <td><a href="/docs/otlessons/abrahamcovenant">Abraham/Sarah</a>, <a href="/docs/otlessons/isaac_rebekah">Isaac/Rebekah</a>, <a href="/docs/otlessons/jacob_leah_rachel">Jacob/Leah/Rachel</a></td>
+    </tr>
+    <tr>
+        <td>Feb 27, 2022</td>
+        <td>Seek Personal Peace</td>
+        <td><a href="/docs/conference/personalpeace">Personal Peace in Challenging Times</a></td>
+    </tr>
+    <tr>
+        <td>Jan 16, 2022</td>
+        <td>Creation and the Fall</td>
+       <td><a href="/docs/otlessons/thebeginning">In the Beginning</a>, <a href="/docs/otlessons/thefall">The Fall</a></td>
+    </tr>
+</table>
+<hr>
+
 
 ### Come Follow Me
 * [2022 Old Testament](https://abn.churchofjesuschrist.org/study/manual/come-follow-me-for-sunday-school-old-testament-2022?lang=eng)
