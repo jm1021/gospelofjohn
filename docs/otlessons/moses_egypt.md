@@ -17,7 +17,7 @@ This story reprents many of the troubling tenants of our world today.  Often log
 ### Possible Plagues of Today
 Is it possible that Cars and Gasoline could cause a similar series of plauges and catastrophies.  Will the powers that rule turn away from things that seem comfortable.
 
-1. Planet getting hotter, greenhouse
+1. Planet getting hotter, [EPA greenhouse emissions](https://www.epa.gov/greenvehicles/greenhouse-gas-emissions-typical-passenger-vehicle)
 2. Ice melting, effect of heat
 3. Tides rising, water warming, impact to sea life
 4. Unsafe ocean water conditions, 
