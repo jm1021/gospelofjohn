@@ -1,7 +1,5 @@
 ## Moses: Egypt and The Exodus
 
-{% include home.html %}
-
 ### The Plagues of Egypt
 This story reprents many of the troubling tenants of our world today.  Often logic, power, and glories of God do not stop man from carrying on according to what they perceive as comfortable or expectations.  Pharoah was obviously comfortable in having the children of Israel work for them.  How is Pharoah different from us?
 
