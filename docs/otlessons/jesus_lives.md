@@ -1,6 +1,6 @@
 ### [Jesus Lives](https://youtu.be/8KCUs7oJxjc)
 
-* Today we stand as witnesses of Jesus Christ, of this Resurection, and the fulflillmnet of the Atonement.
+* Today we stand as witnesses of Jesus Christ, of his Resurection, and the fulflillmnet of the Atonement.
 * Insights from Tad Callister on "The Infinite Atonement"
 
     * Satan has been successful in diverting much of the Christian world’s attention from **the one doctrine that can save us, the Atonement of Jesus Christ**, to the ancillary doctrines that have meaning only because they draw their sustenance from this redeeming event. Like a skilled magician, Satan’s every move is to divert our attention and dilute our focus from the primary object at hand, namely Christ’s atoning sacrifice, in hopes we will turn exclusively to doctrines of secondary and far lesser import” (page 15).
