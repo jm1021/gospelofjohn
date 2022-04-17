@@ -12,7 +12,11 @@ This story parallels many of the troubling events in our world today.  Often log
 7. Thunderstorm of hail and fire: Ex. 9:13–35
 8. Locusts: Ex. 10:1–20
 9. Darkness for three days: Ex. 10:21–29
-10. Death of firstborn son: Ex. 11:1–12:36
+10. Death of firstborn son: Ex. 11:1–12:36, [The Passover and the Exodus](https://www.churchofjesuschrist.org/study/manual/old-testament-student-manual-genesis-2-samuel/exodus-11-19-the-passover-and-the-exodus?lang=eng)
+    * Abraham to sacrifice Isaac provided a similitude of God’s sacrifice of His Only Begotten Son (see Jacob 4:5). 
+    * Joseph, who was sold into Egypt, provided a type or symbol of Christ and His ministry (see Reading 8-19). 
+    * Nephi taught that from the beginning of the world all things have been given to typify or **symbolize Christ and His Atonement** (see 2 Nephi 11:4)
+    * “It was, of course, while Jesus and the Twelve were keeping the Feast of the Passover that our Lord instituted the ordinance of the sacrament.  We now observe the law of the sacrament instead of the Passover because the Passover was consummated in full by the death of Jesus Christ.
 
 ### Possible Plagues of Today
 Is it possible that Cars running on fosile fuels could cause be a similar series of catacalismic events.  Will we or the powers that rule be able to turn away from things that seem comfortable.  Is God and the Prophets telling us to change?
