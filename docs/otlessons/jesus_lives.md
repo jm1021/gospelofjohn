@@ -6,12 +6,17 @@
 
     * Satan has been successful in diverting much of the Christian world’s attention from **the one doctrine that can save us, the Atonement of Jesus Christ**, to the ancillary doctrines that have meaning only because they draw their sustenance from this redeeming event. Like a skilled magician, Satan’s every move is to divert our attention and dilute our focus from the primary object at hand, namely Christ’s atoning sacrifice, in hopes we will turn exclusively to doctrines of secondary and far lesser import” (page 15).
     * “In the premortal council **the Savior covenanted with the Father to perform the Atonement**. . . Based on that pledge or covenant we had faith in him. Based on that covenant the Father could promise remission of sins prior to the atoning sacrifice because he “knew” his Son would not fail. The issue was not that he could not break his covenant, but rather, that he would not” (page 74).  [Abraham 3](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3.22-28?lang=eng#p21) read verse 24. 25, 27.
-    * So what is the Atonement, and why was the Fall of Adam and Eve so significant, even vital? [Moses 5:9–12](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.9-12?lang=eng#p9)
-      * Elder Callister reminds us that the three purposes of the Atonement are 
+    * So what is the Atonement, and why was the Fall of Adam and Eve so significant, even vital? 
+      * Eve [Moses 5:9–12](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/5.9-12?lang=eng#p9), Were it not for our transgression...
+        1. We never should have had seed
+        2. Never should have bknown good and evil
+        3. The joy of our redemption
+        4. The eternal life which God giveth unto all the obedient
+      * Elder Callister state the purposes of the Atonement ...
         1. To restore all that was lost in physical and spiritual death
         2. To provide the opportunity to repent and overcome spiritual death
         3. To allow us the potential to become a god or goddess.
-    * “**The Savior observed every spiritual law with undeviating exactness** apparently because of his compliance with each one, **he received power upon power until he acquired the attributes of God**, even in premortal ties. Such progress was a natural consequence of his exacting compliance. His godhood thus seemed to result not from a creation of these laws, but rather from compliance with them” (page 301).
+    * “**The Savior observed every spiritual law with undeviating exactness** apparently because of his compliance with each one, **he received power upon power until he acquired the attributes of God**, even in premortal ties. Such progress was **a natural consequence of his exacting compliance**. His godhood thus seemed to result not from a creation of these laws, but rather from compliance with them” (page 301).
     * It is infinite in the blessings it bestows. The blessings of **the Atonement extend far beyond its well-known triumph over physical and spiritual death**. Some of these blessings overlap; some complement and supplement each other; but in the aggregate the effect of this event so blesses our lives in a multiplicity of ways, both known and yet to be discovered, that it might appropriately be said to be infinite in its blessing nature” (page 60).
     * “One does not speak lightly of the Atonement or casually express his appreciation. **It is the most sacred and sublime event in eternity**. It deserves our most intense thoughts, our most profound feelings, and our noblest deeds. One speaks of it in reverential tones; one contemplates it in awe; one learns of it in solemnity. This event stands alone, now and throughout eternity. . . . “I now add my testimony to the many who have preceded me that his sacrifice was indeed an infinite and eternal Atonement” (pages 334-335).
 
