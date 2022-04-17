@@ -16,6 +16,7 @@ This story parallels many of the troubling events in our world today.  Often log
     * Abraham to sacrifice Isaac provided a similitude of God’s sacrifice of His Only Begotten Son (see Jacob 4:5). 
     * Joseph, who was sold into Egypt, provided a type or symbol of Christ and His ministry (see Reading 8-19). 
     * Nephi taught that from the beginning of the world all things have been given to typify or **symbolize Christ and His Atonement** (see 2 Nephi 11:4)
+    * Ex 12:5 Your alamb shall be without blemish, a male bof the first year: ye shall take it out from the sheep, or from the goats: Ex 12:6 And ye shall keep it up until the afourteenth day of the same month: and the whole assembly of the congregation of Israel shall kill it in the evening. 12:7 And they shall take of the blood, and strike it on the two side posts and on the upper door post of the houses, wherein they shall eat it.
     * “It was, of course, while Jesus and the Twelve were keeping the Feast of the Passover that our Lord instituted the ordinance of the sacrament.  We now observe the law of the sacrament instead of the Passover because the Passover was consummated in full by the death of Jesus Christ.
 
 ### Possible Plagues of Today
