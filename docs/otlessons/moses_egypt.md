@@ -33,7 +33,7 @@ This story parallels many of the troubling events in our world today.  Often log
 
 
 ### Parallels of Moses in today's society
-Is God and the Prophets telling us to change? We just listened to our prophet.  Many of us have opportunity to be like the children of Israel, we are being directed to follow the Lord.
+Is God and the Prophets telling us to change? We just listened to our prophet.  We are being directed in a manner similar to the children of Israel, we are being directed to follow the Lord.
 
 * Prophet declares, [The Power of Spiritual Momentum](https://www.churchofjesuschrist.org/study/general-conference/2022/04/47nelson?lang=eng)
     * Get on the covenant path and stay there, "Ordinances and covenants give us access to godly power."
