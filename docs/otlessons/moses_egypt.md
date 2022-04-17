@@ -1,6 +1,6 @@
 ## Moses: Egypt and The Exodus
 
-### Possible Plagues of Today
+### Plagues of Today
 Will we or the powers that rule be able to turn away from things that seem "comfortable" or "entitled".  
 
 Missionaries proclaim, [There is Peace](https://youtu.be/x0kki9l02KM)
