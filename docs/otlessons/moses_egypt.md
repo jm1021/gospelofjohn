@@ -1,9 +1,10 @@
 ## Moses: Egypt and The Exodus
 
 ### Plagues of Today
-Will we or the powers that rule be able to turn away from things that seem "comfortable" or "entitled". 
 
 Missionaries proclaim, [There is Peace](https://youtu.be/x0kki9l02KM)
+
+Will we or the powers that rule be able to turn away from things that seem "comfortable" or "entitled". Perhaps fossile fuel cars.
 
 1. Planet getting hotter, [EPA greenhouse emissions](https://www.epa.gov/greenvehicles/greenhouse-gas-emissions-typical-passenger-vehicle), [Warming temperature](https://www.climate.gov/news-features/understanding-climate/climate-change-global-temperature#:~:text=Earth's%20temperature%20has%20risen%20by,land%20areas%20were%20record%20warm.)
 2. [Ice melting](https://www.worldwildlife.org/pages/six-ways-loss-of-arctic-ice-impacts-everyone#:~:text=Polar%20ice%20caps%20are%20melting,declined%20by%20a%20stunning%2095%25.)
