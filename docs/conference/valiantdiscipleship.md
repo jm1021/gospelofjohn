@@ -8,7 +8,7 @@
 
 [Profile of Jörg Klebingat](https://newsroom.churchofjesuschrist.org/article/elder-j%C3%B6rg-klebingat#:~:text=Elder%20J%C3%B6rg%20Klebingat%20was%20sustained,August%202014%20to%20August%202016.)
 
-### Sacrament Meeting
+### Sacrament Meeting ( Mothers Day )
 * Passing of the Torch Devi to Ka'laya
 * Crisis and Christ, by Jenni Naylor
     * Fear, "I don't know if I am doing it right", referring to motherhood 
