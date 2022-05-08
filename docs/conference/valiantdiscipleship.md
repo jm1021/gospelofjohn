@@ -8,6 +8,10 @@
 
 [Profile of Jörg Klebingat](https://newsroom.churchofjesuschrist.org/article/elder-j%C3%B6rg-klebingat#:~:text=Elder%20J%C3%B6rg%20Klebingat%20was%20sustained,August%202014%20to%20August%202016.)
 
+### Pair up and read the profile Jörg Klebingat, think about these phrases ...
+* "If you feel caught between your discipleship and the world, ..."
+* "With faith in Christ, we need not fear the reproach of men or be afraid of their revilings."
+
 ### Fearful
 * Think of fearful events in sharing your faith in Jesus Christ.  Thoughts from Jörg Klebingat ...
     * Messengers of God who teach “inconvenient” truths are often dismissed.
