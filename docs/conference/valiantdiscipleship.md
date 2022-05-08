@@ -13,6 +13,9 @@
 * Crisis and Christ, by Jenni Naylor
     * Fear, "I don't know if I am doing it right", referring to motherhood 
     * Faithful, "My heart expands as I feel a wave of Love", parallel to love of Jesus Christ she feels as a mother with expanding family
+* We have a Heavenly Mother by Tyler Jensen
+    * Eve is the mother of all living
+    * "Daughter of my Kingdom" history of Latter-Day-Saints women
 
 ### Pair up, read the profile Jörg Klebingat, and then think about these phrases ...
 * If you feel caught between your discipleship and the world, please remember that your loving Savior “sendeth an invitation … , for the arms of mercy are extended [to you], and he saith: Repent, and I will receive you.”
