@@ -1,4 +1,4 @@
-## Jörg Klebingat Of the Seventy | Valiant Discipleship in the Latter Days | Apr 2022 | Faith To Act
+## Jörg Klebingat Of the Seventy | Valiant Discipleship in the Latter Days | Apr 2022 | Faithful, not fearful
 
 {% include home.html %}
 
