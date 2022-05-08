@@ -1,3 +1,13 @@
+## Jörg Klebingat Of the Seventy | Valiant Discipleship in the Latter Days | Apr 2022 | Faith To Act
+
+{% include home.html %}
+
+[2022 Apr Sunday Aftermppm Conference Talk](https://abn.churchofjesuschrist.org/study/general-conference/2022/04/53klebingat?lang=eng)
+
+[Youtube Video](https://www.youtube.com/watch?v=HBv8FCzGBNQ)
+
+
+
 Valiant Discipleship in the Latter Days by Elder Jörg Klebingat Of the Seventy
 
 it’s a good day to be good!
