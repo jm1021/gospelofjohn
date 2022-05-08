@@ -42,7 +42,7 @@
 * Jesus, Covenants, and a 2nd career (2nd chance in Teaching)
     * Teaching at Del Norte High School is in an era where it is all about points and college achievement
         * I Teach "Code, Code, Code" as a mantra to solve all problems, tounge in cheek
-        * However, I often teach principles from General Conference
+        * However, I often teach principles from General Conference, ie Trust people and give 2nd chances
     * Scrum Team Analogy of two young ladies Risa and Yolanda, "you know how we discuss carrying that 5th member...", "this can be like friendships..."
     * Medical Crisis young man Yeonjoon, "I don't believe, but how do you overcome pain, sorrow, death", "I was doing drugs, but now I want to do better..."
     * Westpoint enrolled young man Dane, In front of many students, "I went to one of your Big A... Churches",  "We played nerf wars through hall and gym".  From listner Chris, "You did not go to Church, you went to activity with Young Men"
