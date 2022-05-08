@@ -10,7 +10,7 @@
 
 ### Sacrament Meeting
 * Passing of the Torch Devi to Ka'laya
-* Crisis and Christ
+* Crisis and Christ, by Jenni Naylor
     * Fear, "I don't know if I am doing it right"
     * Faithful, "My heart expands as I feel a wave of Love", parallel to love of Jesus Christ.
 
