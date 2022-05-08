@@ -6,7 +6,7 @@
 
 [Youtube Video](https://www.youtube.com/watch?v=HBv8FCzGBNQ)
 
-### Fearfull
+### Fearful
 * Think of fearful events in sharing your faith in Jesus Christ.  Thoughts from Jörg Klebingat ...
     * Messengers of God who teach “inconvenient” truths are often dismissed.
     * “evil [would be called] good, and good evil”
