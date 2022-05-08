@@ -32,13 +32,14 @@
 * “True disciples of Jesus Christ,” President Nelson taught, “are willing to stand out, speak up, and be different from the people of the world. They are undaunted, devoted, and courageous.”
 
 ### Fearful and Faithful dicotomies
-* Jesus, Covenants, and Basketball (18 yrs old vs 19 yrs old; Reed and Tom), (24 yrs old vs 25 yrs old; Lee)
+* Jesus, Covenants, and Basketball (18 yrs old vs 19 yrs old; Reed and Tom), (24 yrs old vs 25 yrs old; Lee), (50 ysrs old followed by 62 year old day of surfing; James)
     * An era where Church Members built their own activities (Dance Festivals, Basketball)
         * A Dance Festival would be at the Rose Bowl, 100,000 guests, 1000s of Dancers, wards and Stakes
         * Basketball playoffs in LA spanned months, we played 32 games to reach Southern California championships
     * 1st story with Tom and Reed
     * 2nd story with Lee
-    * Summary in all things you can have Jesus on your side, or you can Tarry with Natural man
+    * 3rd story with James
+    * Summary in all things you can have Jesus on your side, you can Tarry with Natural man, you may flip between being Guided to being and Example
 * Jesus, Covenants, and a 2nd career (2nd chance in Teaching)
     * Teaching at Del Norte High School is in an era where it is all about points and college achievement
         * I Teach "Code, Code, Code" as a mantra to solve all problems, tounge in cheek
