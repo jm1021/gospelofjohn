@@ -11,7 +11,7 @@
 ### Sacrament Meeting
 * Passing of the Torch Devi to Ka'laya
 * Crisis and Christ, by Jenni Naylor
-    * Fear, "I don't know if I am doing it right"
+    * Fear, "I don't know if I am doing it right", referring to motherhood 
     * Faithful, "My heart expands as I feel a wave of Love", parallel to love of Jesus Christ.
 
 ### Pair up, read the profile Jörg Klebingat, and then think about these phrases ...
