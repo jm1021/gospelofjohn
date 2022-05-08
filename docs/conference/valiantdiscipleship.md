@@ -31,5 +31,21 @@
     * “Great peace have they which love thy law: and nothing shall offend them.”
 * “True disciples of Jesus Christ,” President Nelson taught, “are willing to stand out, speak up, and be different from the people of the world. They are undaunted, devoted, and courageous.”
 
+### Fearful and Faithful dicotomies
+* Jesus, Covenants, and Basketball (18 yrs old vs 19 yrs old; Reed and Tom), (24 yrs old vs 25 yrs old; Lee)
+    * An era where Church Members built their own activities (Dance Festivals, Basketball)
+        * A Dance Festival would be at the Rose Bowl, 100,000 guests, 1000s of Dancers, wards and Stakes
+        * Basketball playoffs in LA spanned months, we played 32 games to reach Southern California championships
+    * 1st story with Tom and Reed
+    * 2nd story with Lee
+    * Summary in all things you can have Jesus on your side, or you can Tarry with Natural man
+* Jesus, Covenants, and a 2nd career (2nd chance in Teaching)
+    * Teaching at Del Norte High School is in an era where it is all about points and college achievement
+        * I Teach "Code, Code, Code" as a mantra to solve all problems, tounge in cheek
+        * However, I often teach principles from General Conference
+    * Scrum Team Analogy of two young ladies Risa and Yolanda, "you know how we discuss carrying that 5th member...", "this can be like friendships..."
+    * Medical Crisis young man Yeonjoon, "I don't believe, but how do you overcome pain, sorrow, death", "I was doing drugs, but now I want to do better..."
+    * Westpoint enrolled young man Dane, In front of many students, "I went to one of your Big A... Churches",  "We played nerf wars through hall and gym".  From listner Chris, "You did not go to Church, you went to activity with Young Men"
+
 
 
