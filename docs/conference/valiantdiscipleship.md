@@ -8,6 +8,12 @@
 
 [Profile of Jörg Klebingat](https://newsroom.churchofjesuschrist.org/article/elder-j%C3%B6rg-klebingat#:~:text=Elder%20J%C3%B6rg%20Klebingat%20was%20sustained,August%202014%20to%20August%202016.)
 
+### Sacrament Meeting
+* Passing of the Torch Devi to Ka'laya
+* Crisis and Christ
+    * Fear, "I don't know if I am doing it right"
+    * Faithful, "My heart expands as I feel a wave of Love", parallel to love of Jesus Christ.
+
 ### Pair up, read the profile Jörg Klebingat, and then think about these phrases ...
 * If you feel caught between your discipleship and the world, please remember that your loving Savior “sendeth an invitation … , for the arms of mercy are extended [to you], and he saith: Repent, and I will receive you.”
 * "With faith in Christ, we need not fear the reproach of men or be afraid of their revilings."
