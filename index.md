@@ -6,6 +6,11 @@
         <th>Link(s)</th>
     </tr>
    <tr>
+        <td>May 8, 2022</td>
+        <td>Let us be confident</td>
+        <td><a href="/docs/conference/valiantdiscipleship">Valiant Discipleship in the Latter Days</a></td>
+   </tr>
+   <tr>
         <td>April 17, 2022</td>
         <td>Jesus Christ Lives and a little Moses</td>
         <td><a href="/docs/otlessons/moses_egypt">Moses and Egypt</a>, <a href="/docs/otlessons/jesus_lives">Jesus Lives</a></td>
