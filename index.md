@@ -8,7 +8,7 @@
    <tr>
         <td>June 5, 2022</td>
         <td>Beware Lest Thou Forget the Lord</td>
-        <td><a href="/docs/otlessons/bewarelestthouforget"></a></td>
+        <td><a href="/docs/otlessons/bewarelestthouforget">Moses counsel in Deuteronomy</a></td>
    </tr>
    <tr>
         <td>May 8, 2022</td>
