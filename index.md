@@ -6,6 +6,11 @@
         <th>Link(s)</th>
     </tr>
    <tr>
+        <td>June 5, 2022</td>
+        <td>Beware Lest Thou Forget the Lord</td>
+        <td><a href="/docs/otlessons/bewarelestthouforget"></a></td>
+   </tr>
+   <tr>
         <td>May 8, 2022</td>
         <td>Let us be confident</td>
         <td><a href="/docs/conference/valiantdiscipleship">Valiant Discipleship in the Latter Days</a></td>
