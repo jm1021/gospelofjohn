@@ -9,7 +9,7 @@ May 15, 2022 by our Prophet, "There is nothing happening on this earth more impo
 ### Warm-Up activity, as individuals, pairs, or trios review scriptures and thoughs on "How to Love the Lord"
 Ponder how to establish a loving relationship with God. What comes when we establish a relationship with God?  
 1. New Testament 1st and 2nd Great Commandments: [Mark 12:30, 31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12?lang=eng&id=30-31#p29)
-2. Hyrum Smith cleave and commandments: [D&C 11:19-21](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/11?lang=eng&id=20-21#p19)
+2. Hyrum Smith cleave and commandments: [D&C 11:19-21](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/11?lang=eng&id=19-21#p19)
 3. God and Jesus in our Love: [John 14:6-7](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14?lang=eng&id=6-7#p5)
 4. May Stake fireside we had Terryl and Fiona Givens, they spoke of the "The Healing Truths of the Resotration".  Their topics began with our undertanding of God.  A lot of there talk is supplemented by early Chritianity.  These are my notes and correlations from their talk on how I interpreted re-undertanding my relationship with God ...
     * [Origen of Alexandria (c. 185 – c. 253)](https://en.wikipedia.org/wiki/Origen), also known as Origen Adamantius. Origen taught that, before the creation of the material universe, God had created the souls of all the intelligent beings. These souls, at first fully devoted to God, fell away from him and were given physical bodies. ... my interpretation, the First Estate
