@@ -13,4 +13,4 @@ Ponder how to establish a loving relationship with God. What comes when we estab
 * Macrina The advance of the soul is through love
 * Julian if Norwich God and Frienship
 * God wrath, Jesus healing.  John 14:7
-* [Incarnation](https://en.wikipedia.org/wiki/Incarnation_(Christianity), Resurection were they keys of early Chrtisnity
+* <a href="https://en.wikipedia.org/wiki/Incarnation_(Christianity)">The Incarnation</a> and Resurection of Christ were they keys of early Christianity.
