@@ -1,7 +1,7 @@
 ## Moses: Beware Lest Thou Forget the Lord
 My experience with reading Deuteronomy was one were the Ancients, those at the time of shortly after the resurection of Jesus Christ, and the modern Church and Propeht were completely unified.  In a period were I see so much crisis, I see that with God we can prevail, just as the Children of Israel.
 
-[Love the Lord: Deuteronomy 6:5-7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6?lang=eng&id=5-7#p3), [Open thy hand wide: Deuteronomy 15:7-8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15?lang=eng&id=7-8#p6)
+[Love the Lord: Deuteronomy 6:5-7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6?lang=eng&id=5-7#p3), [Open thine hand wide: Deuteronomy 15:7-8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15?lang=eng&id=7-8#p6)
 
 May 15, 2022 by our Prophet, "There is nothing happening on this earth more important than gathering Israel for Him. Let your Heavenly Father know that you want to help. Ask Him to put you to work in this glorious cause. And then stand back and marvel at what happens when you let God prevail in your life."
 
