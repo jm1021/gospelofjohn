@@ -3,9 +3,12 @@ My experience with reading Deuteronomy was comparing ...
 1. The "Ancients" at the time of Moses
 2. Those that lived at the meridian of time of shortly after the resurection of Jesus Christ
 3. And, the modern Church and Prophet today
-My reflections were completely unified.  In a period of history, were I see so much crisis:  I see that with God we can prevail.  I see that the Children of Israel "like miracles" can be found in our obedience to the prophet.  That we can feeel the closeness of the Savior as Peter, Paul, and the apostles.  That we have a Prophet that provides "Spiritual Momentum" guideance.  In the guideance we receive, we may not see a completeness that we want at the outse, but if we go forward with faith miracles we can come to know God.
 
-### Gudeance to Israel, the Great Commandments
+My reflections were completely unified in spirit.  In a period of history, were I see so much crisis:  I see that with God we can prevail.  I see that the Children of Israel "like miracles" can be found in our obedience to the prophet.  
+
+Additionally, I feel we can feel the closeness of the Savior as did Peter, Paul, and the apostles when the Savior was resurrected.  We have a Prophet that has provided the "Spiritual Momentum" guideance.  In this guideance we will receive joy!  We may not receive a completeness, we may wish for more guideance at the outset of our obedience.  But if we go forward with faith, I know we will see miracles we can come to know God.
+
+### Guideance to Israel, the Great Commandments
 [Love the Lord: Deuteronomy 6:5-7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6?lang=eng&id=5-7#p3), [Open thine hand wide: Deuteronomy 15:7-8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15?lang=eng&id=7-8#p6)
 
 May 15, 2022 by our Prophet, "There is nothing happening on this earth more important than gathering Israel for Him. Let your Heavenly Father know that you want to help. Ask Him to put you to work in this glorious cause. And then stand back and marvel at what happens when you let God prevail in your life."
