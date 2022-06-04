@@ -47,4 +47,6 @@ As far as evidences, there are as many opportunities to believe or doubt.  Here 
 
 
 ### The Story of Rahaab
-In my opinion, out of these three weeks, one of the stories that needs to most analysis is Rahaab.
+In my opinion,  one of the stories that needs to remembered and analyzed is Rahab...  Before the Israelites cross the Jordan, Joshua sends men to scout out the land. Arriving in Jericho, they decide to spend the night at the house of the harlot Rahab. When Jericho’s ruler tries to apprehend them, Rahab hides them and then helps them escape, thus saving their lives. In return, she and her household are spared the destruction of Jericho and Rahab and her family become part of the people Israel. 
+
+
