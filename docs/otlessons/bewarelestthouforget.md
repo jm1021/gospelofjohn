@@ -9,12 +9,14 @@ My reflections were completely unified in spirit.  In a period of history, were 
 Additionally, I feel we can feel the closeness of the Savior as did Peter, Paul, and the apostles when the Savior was resurrected.  We have a Prophet that has provided the "Spiritual Momentum" guideance.  In this guideance we will receive joy!  We may not receive a completeness, we may wish for more guideance at the outset of our obedience.  But if we go forward with faith, I know we will see miracles we can come to know God.
 
 ### Guideance to Israel, the Great Commandments
+Here is my reflection from from Moses up untill today...  
+
 [Love the Lord: Deuteronomy 6:5-7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6?lang=eng&id=5-7#p3), [Open thine hand wide: Deuteronomy 15:7-8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15?lang=eng&id=7-8#p6)
 
 May 15, 2022 by our Prophet, "There is nothing happening on this earth more important than gathering Israel for Him. Let your Heavenly Father know that you want to help. Ask Him to put you to work in this glorious cause. And then stand back and marvel at what happens when you let God prevail in your life."
 
 
-### Warm-Up activity, as individuals, pairs, or trios review scriptures and thoughs on "How to Love the Lord"
+#### Warm-Up activity, as individuals, pairs, or trios review scriptures and thoughs on "How to Love the Lord"
 Ponder how to establish a loving relationship with God. What comes when we establish a relationship with God?  
 1. New Testament 1st and 2nd Great Commandments: [Mark 12:30, 31](https://www.churchofjesuschrist.org/study/scriptures/nt/mark/12?lang=eng&id=30-31#p29)
 2. Hyrum Smith cleave and commandments: [D&C 11:19-21](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/11?lang=eng&id=19-21#p18)
