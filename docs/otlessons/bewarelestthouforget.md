@@ -33,4 +33,5 @@ Ponder how to establish a loving relationship with God. What comes when we estab
 As I read these stories, I often want to know more about the evidence, history, and details that we have uncovered to verify these events.  Thing like the Ark of the Covenant, the Levite Priests, the Bugels, and the "facts' around them are fascinating to me.  Usually, I think about Indiana Jones when I think of the Ark and this fantasy leads me to Wikipedia and its linked sources to explore and Journey.  Here are the text that fascinate me...
 
 1. Children of Israel Cross Jordan [Joshua 3:13,15,17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3?lang=eng&id=13%2C15%2C17#p13)
-2. The Walls of Jericho [Joshua 6:2-6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=2-5#p2)
+2. The Walls of Jericho [Joshua 6:2-6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=2-5#p2), [6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=20#p19)
+3. 
