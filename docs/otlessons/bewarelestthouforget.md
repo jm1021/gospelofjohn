@@ -1,6 +1,11 @@
 ## Moses: Beware Lest Thou Forget the Lord
-My experience with reading Deuteronomy was one were the Ancients, those at the time of shortly after the resurection of Jesus Christ, and the modern Church and Propeht were completely unified.  In a period were I see so much crisis, I see that with God we can prevail, just as the Children of Israel.
+My experience with reading Deuteronomy was comparing ...
+1. The "Ancients" at the time of Moses
+2. Those that lived at the meridian of time of shortly after the resurection of Jesus Christ
+3. And, the modern Church and Prophet today
+My reflections were completely unified.  In a period of history, were I see so much crisis:  I see that with God we can prevail.  I see that the Children of Israel "like miracles" can be found in our obedience to the prophet.  That we can feeel the closeness of the Savior as Peter, Paul, and the apostles.  That we have a Prophet that provides "Spiritual Momentum" guideance.  In the guideance we receive, we may not see a completeness that we want at the outse, but if we go forward with faith miracles we can come to know God.
 
+### Gudeance to Israel, the Great Commandments
 [Love the Lord: Deuteronomy 6:5-7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6?lang=eng&id=5-7#p3), [Open thine hand wide: Deuteronomy 15:7-8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15?lang=eng&id=7-8#p6)
 
 May 15, 2022 by our Prophet, "There is nothing happening on this earth more important than gathering Israel for Him. Let your Heavenly Father know that you want to help. Ask Him to put you to work in this glorious cause. And then stand back and marvel at what happens when you let God prevail in your life."
@@ -22,3 +27,9 @@ Ponder how to establish a loving relationship with God. What comes when we estab
    * First, know the truth about who you are.  If Lord were to speak to you today... He would make sure you understand is your true identity.  I am simply saying that no identifier should displace, replace, or take priority over these three enduring designations: “child of God,” “child of the covenant,” and “disciple of Jesus Christ.”
    * Second, know the truth about what Heavenly Father and His Son have offered you....  In short, They have offered you everything!  God knows all and sees all. In all of eternity, no one will ever know you or care about you more than He does. No one will ever be closer to you than He is. You can pour out your heart to Him and trust Him to send the Holy Ghost and angels to care for you.  Jesus Christ is the only enduring source of hope, peace, and joy for you.
    * And third, know the truth related to your conversion.  The truth is that you must own your own conversion. No one else can do it for you.  Do you want to experience the sweet, soothing power of the Atonement of Jesus Christ working in your life?  Engage in daily, earnest, humble prayer. Nourish yourself in the words of ancient and modern prophets.  As you make your testimony your highest priority, watch for miracles to happen in your life.  You will have the strength to have a positive influence far beyond your natural capacity. And I promise that your future will be more exhilarating than anything you can presently believe.
+
+
+### History and Miracles in Joshua and Judges
+As I read these stories, I often want to know more about the evidence, history, and details that we have uncovered to verify these events.  Thing like the Ark of the Covenant, the Levite Priests, the Bugels, and the "facts' around them are fascinating to me.  Usually, I think about Indiana Jones when I think of the Ark and this fantasy leads me to Wikipedia and its linked sources to explore and Journey.  Here are the text that fascinate me...
+
+[Joshua 3:13,15,17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3?lang=eng&id=13%2C15%2C17#p13)
