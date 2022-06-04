@@ -59,3 +59,5 @@ Rahab's [Faith](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11?l
 
 [Rahab in the ancestory of Jesus](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1?lang=eng&id=5#p5)
 
+Lesson... God saves, atones and loves those with a past.  Rahab saves her families lives and becomes a glorious part of history. 
+
