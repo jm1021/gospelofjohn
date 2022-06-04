@@ -44,3 +44,7 @@ As far as evidences, there are as many opportunities to believe or doubt.  Here 
 4. Come Follow Me suggests finding gems.   It describes these books as being referred to as "Historical" portions of the Old Testament.  Thus, some of these stories can be gruesome, troubling, or just from a single perspective.  [Come Follow Me Source: Thoughts to Keep in Mind](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/22-thoughts?lang=eng)
 5. Be aware that Joseph Smith and his work on the Bible.  The big changes in Joshua are referring to the "True Attributes of God".  [The Contribution of the JST to the Old Testament Historical Books](https://rsc.byu.edu/joseph-smith-translation/contribution-jst-old-testament-historical-books)
     * The KJV reads, “For it was of the Lord to harden their hearts, that they should come against Israel in battle, that he might destroy them utterly” (Joshua 11:20). The Prophet changed it to read, “For it was of the Lord to destroy them utterly because they hardened their hearts.” 
+
+
+### The Story of Rahaab
+In my opinion, out of these three weeks, one of the stories that needs to most analysis is Rahaab.
