@@ -53,4 +53,5 @@ As far as evidences, there are as many opportunities to believe or doubt.  Here 
 ### ![rahab](/docs/assets/images/rahab.png) The Story of Rahaab
 Before the Israelites cross the Jordan, Joshua sends men to scout out the land. Arriving in Jericho, they decide to spend the night at the house of the harlot Rahab. When Jericho’s ruler tries to apprehend them, Rahab hides them and then helps them escape, thus saving their lives. In return, she and her household are spared the destruction of Jericho and Rahab and her family become part of the people Israel. 
 
-
+[Faith of Rahab](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11?lang=eng&id=31-32#p30)
+[Work of Rahab](https://www.churchofjesuschrist.org/study/scriptures/nt/james/2?lang=eng&id=24-25#p23)
