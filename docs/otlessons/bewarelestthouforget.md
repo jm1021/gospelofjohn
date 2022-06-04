@@ -1,5 +1,5 @@
 ## Moses: Beware Lest Thou Forget the Lord
-My experience with reading Deuteronomy was comparing ...
+My experience with reading Deuteronomy, Joshua, and Judges was comparing ...
 1. The "Ancients" at the time of Moses
 2. Those that lived at the meridian of time of shortly after the resurection of Jesus Christ
 3. And, the modern Church and Prophet today
