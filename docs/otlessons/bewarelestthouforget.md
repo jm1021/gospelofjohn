@@ -30,9 +30,16 @@ Ponder how to establish a loving relationship with God. What comes when we estab
 
 
 ### History and Miracles in Joshua and Judges
-As I read these stories, I often want to know more about the evidence, history, and details that we have uncovered to verify these events.  Thing like the Ark of the Covenant, the Levite Priests, the Bugels, and the "facts' around them are fascinating to me.  Usually, I think about Indiana Jones when I think of the Ark and this fantasy leads me to Wikipedia and its linked sources to explore and Journey.  Here are the text that fascinate me...
+As I read these stories, I often want to know more about the archeology, history, and details that verify these events.  Things like the Ark of the Covenant, the Levite Priests, the Bugels, and the "facts' around them are fascinating to me.  Usually, I think about Indiana Jones when I think of the Ark and this fantasy leads me to Wikipedia and its linked sources to explore and Journey into the past.  Here are the stories that fascinate me...
 
 1. Children of Israel Cross Jordan [Joshua 3:13,15,17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3?lang=eng&id=13%2C15%2C17#p13)
 2. The Walls of Jericho [Joshua 6:2-6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=2-5#p1), [6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=20#p19)
 3. Ambush at Ai [Joshua 6:14-21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8?lang=eng&id=14-21#p13)
 4. Gideon and the Midianites [Judges 7:16,20-21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7?lang=eng&id=16%2C20-21#p15)
+
+As far as evidences, there are as many opportunities to believe or doubt.  Here are some things that we should understand as we read these stories...
+1. These books belong to the tradition of Jewish history and law, called Deuteronomic, they were first committed to writing about 550 BCE, during the Babylonian Exile.  The Book of Ezra is contemporary with this time of this compilation. For reference, the time period of Joshua is closer to 1400 BCE.
+2. The death of Moses is recorded in [Deuteronomy 34](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34?lang=eng), the death of Joshua is recorded in the book of [Joshua 24](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24?lang=eng).  Many of the events we have today were created from either oral histories or fragments. 
+3. Scholars, Archeologists and others often differ in opinion on cities like Jericho and Ai and there destructions being at the time of Joshua.  
+4. Some of these stories can be gruesome and troubling.   Come follow me provides some discussion about these records, [Thoughts to Keep in Mind] (https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/22-thoughts?lang=eng)
+5. 
