@@ -59,4 +59,4 @@ Rahab's [Faith](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11?l
 
 [Rahab in the ancestory of Jesus](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/1?lang=eng&id=5#p5)
 
-Lesson... God saves, atones and loves those with a past.  Brother Darcy provided amazing insight to his feelings into this atoning process with his work in the prison recently, compared to his work in traditional education.  
+My interpretation of Rahab's example... God saves, atones and loves those with a past.  Brother Darcy provided amazing insight on his feelings into this atoning process.  He understood that in his work in education within the prison he saw hunger, compared to his work in traditional work in education where he sees complacency and a focus on credit hours.  Lives are often best changed with a reawakening, we don't necessarily need to be a harlot or be in prison, but whatever prison we shackle upon ourself, we need to awakaen unto God and use the quickening power of the Atonement of Jesus Christ.
