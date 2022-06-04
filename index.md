@@ -8,7 +8,7 @@
    <tr>
         <td>June 5, 2022</td>
         <td>Beware Lest Thou Forget the Lord</td>
-        <td><a href="/docs/otlessons/bewarelestthouforget">Remember and Know the Lord</a></td>
+        <td><a href="/docs/otlessons/bewarelestthouforget">Deuteronomy, Joshua, Judges</a></td>
    </tr>
    <tr>
         <td>May 8, 2022</td>
