@@ -42,7 +42,9 @@ As I read these stories, I often want to know more about the archeology, history
 3. Ambush at Ai [Joshua 6:14-21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8?lang=eng&id=14-21#p13)
 4. Gideon and the Midianites [Judges 7:16,20-21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7?lang=eng&id=16%2C20-21#p15)
 
-As far as evidences, there are as many opportunities to believe or doubt.  Here are some things that we should understand as we read these stories...
+*** Why did the children of Israel keep falling int idoloatry [aka People after Gideon](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/8?lang=eng&id=33-35#p32) I have heard it said that our children today have such a hard time, I have seen it and felt it personally.  This goes to them "Lest we Forget"
+
+As far as evidences of these stories, there are as many opportunities to believe or doubt.  Here are some things that we should understand as we read these stories...
 1. These books belong to the tradition of Jewish history and law, called Deuteronomic, they were first committed to writing about 550 BCE, during the Babylonian Exile.  The Book of Ezra is contemporary with this time of this compilation. For reference, the time period of Joshua is closer to 1400 BCE.
 2. The death of Moses is recorded in [Deuteronomy 34](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/34?lang=eng), the death of Joshua is recorded in the book of [Joshua 24](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/24?lang=eng).  Many of the events we have today were created from either oral histories or fragments. 
 3. Scholars, Archeologists and others often differ in opinion on cities like Jericho and Ai and how their destructions reconcile with being at the time of Joshua.  
