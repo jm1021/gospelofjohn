@@ -9,7 +9,7 @@ My reflections were completely unified in spirit.  In a period of history, were 
 Additionally, I feel, we can feel the closeness of the Savior as did Peter, Paul, and the Apostles after the Savior was resurrected.  We have a Prophet, that has provided the "Spiritual Momentum" guideance.  In this guideance, by following we will receive joy!  We may not seee a completeness, we may wish for more guideance, we may see patterns in our lives that make it impossible to forgive.  But if we go forward with faith, we can find a way.  I know we can and will see miracles as we come to know and try to be like God.
 
 ### Guideance to Israel, the Great Commandments
-Here is my reflection from from Moses up untill today...  
+![moses](/docs/assets/images/bewarelest.webp)
 
 [Love the Lord: Deuteronomy 6:5-7](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/6?lang=eng&id=5-7#p3), [Open thine hand wide: Deuteronomy 15:7-8](https://www.churchofjesuschrist.org/study/scriptures/ot/deut/15?lang=eng&id=7-8#p6)
 
