@@ -1,12 +1,16 @@
 ## Moses: Beware Lest Thou Forget the Lord
-My experience with reading Deuteronomy, Joshua, and Judges was comparing ...
+Recap of my experience with reading Deuteronomy, Joshua, and Judges was by comparing ...
 1. The "Ancients" at the time of Moses
-2. Those that lived at the meridian of time of shortly after the resurection of Jesus Christ
-3. And, the modern Church and Prophet today
+2. Those that lived at the meridian of time of shortly after the resurection of Jesus Christ, inspired by Givens fireside in May 
+3. And, the modern Church revelations and very recent Prophet statements today
 
-My reflections were completely unified in spirit.  In a period of history, were I see so much crisis:  I see that with God we can prevail.  I see that the Children of Israel "like miracles" can be found in our obedience to the Prophet.  
+We have been couseled through Come Follow Me, to find the Gems in the Old Testament.
 
-Additionally, I feel, we can feel the closeness of the Savior as did Peter, Paul, and the Apostles after the Savior was resurrected.  We have a Prophet, that has provided the "Spiritual Momentum" guideance.  In this guideance, by following we will receive joy!  We may not seee a completeness, we may wish for more guideance, we may see patterns in our lives that make it impossible to forgive.  But if we go forward with faith, we can find a way.  I know we can and will see miracles as we come to know and try to be like God.
+My reflections of the Ancients to today were completely unified as I look toward the spirit.  In Deuteronomic period of history, we see so much crisis; today we see similar crisises.  In the Deuteromic period we see that with God we can prevail.  Today, I see that the Children of Israel "like miracles" can be found in through our obedience to the modern Prophet.  
+
+Many of us believe, we can feel the closeness of the Savior as did Peter, Paul, and the Apostles after the Savior was resurrected.  We have a Prophet, that has provided us the recent "Spiritual Momentum" guideance.  In this guideance, by repentance and allowing forgivenes to enter our hearts we will receive joy!  We may not see a completeness... We may wish for more guideance... We may wish for better favor in our direction... We may see patterns in our lives that make it seem impossible to forgive.  Steadfast, if we go forward with faith, we can find a way.  
+
+I know we can and will see miracles as we come to know and try to be like God.  The Children of Israel show us weakness and strength.  Looking for personal stength in these stories is the Gem.
 
 ### Guideance to Israel, the Great Commandments
 ![moses](/docs/assets/images/bewarelest.webp)
