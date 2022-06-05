@@ -40,8 +40,8 @@ As I read these stories, I often want to know more about the archeology, history
 1. Children of Israel Cross Jordan [Joshua 3:13,15,17](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/3?lang=eng&id=13%2C15%2C17#p13)
 2. The Walls of Jericho [Joshua 6:2-6](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=2-5#p1), [6:20](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/6?lang=eng&id=20#p19)
 3. Ambush at Ai,  [Joshua 6:14-21](https://www.churchofjesuschrist.org/study/scriptures/ot/josh/8?lang=eng&id=14-21#p13)
-4. Gideon and the Midianites, Buggles [Judges 7:16,20-21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7?lang=eng&id=16%2C20-21#p15)
-5. Samson and Delilah, is this scripture/history [Judges 16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16?lang=eng)
+4. Trumpets and Lights of Gideon versus the Midianites [Judges 7:16,20-21](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/7?lang=eng&id=16%2C20-21#p15)
+5. Samson and Delilah, is this scripture/history? [Judges 16](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/16?lang=eng)
 
 *** Why did the children of Israel keep falling int idoloatry [aka People after Gideon](https://www.churchofjesuschrist.org/study/scriptures/ot/judg/8?lang=eng&id=33-35#p32) I have heard it said that our children today have such a hard time, I have seen it and felt it personally.  This goes to them "Lest we Forget"
 
